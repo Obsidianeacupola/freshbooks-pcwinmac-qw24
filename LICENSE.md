@@ -1,4 +1,4 @@
-# 
+# Élite FreshBooks plugins pour Mac OS | Mis à jour FreshBooks plugins pour PC Windows. Avec gestion de la paie et édition de PDF — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
